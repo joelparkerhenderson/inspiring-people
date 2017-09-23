@@ -1,0 +1,5 @@
+# Pope Francis
+
+[Pope Francis](https://en.wikipedia.org/wiki/Pope_Francis) is the 266th and current Pope of the Roman Catholic Church. Throughout his public life, Pope Francis has been noted for his humility, emphasis on God's mercy, concern for the poor and commitment to interfaith dialogue. He is credited with having a less formal approach to the papacy than his predecessors, for instance choosing to reside in the Domus Sanctae Marthae guesthouse rather than in the papal apartments of the Apostolic Palace used by his predecessors. 
+
+He maintains that the church should be more open and welcoming. He does not support unbridled capitalism, Marxism, or Marxist versions of liberation theology. Francis maintains the traditional views of the church regarding social teaching, ordination of women, and clerical celibacy. He opposes consumerism, irresponsible development, and supports taking action on climate change, a focus of his papacy with the promulgation of Laudato si'. In international diplomacy, he helped to restore full diplomatic relations between the United States and Cuba.
